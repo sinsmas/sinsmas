@@ -14,6 +14,6 @@
     latino brazilian butch lesbian. bad english<br>
     <br>
     probably using facty pony on bandom!<br>
-    i love facty, they're very dear to me :)
+    i love facty so much haha.
   </div>
 </div>
