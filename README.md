@@ -1,11 +1,19 @@
 <div>
   <div align="center">
-    <img src="https://komarev.com/ghpvc/?username=waycestie&style=plastic&label=♡+views&color=99a3de">
+    <img src="https://komarev.com/ghpvc/?username=waycestie&style=plastic&label=stalkers&color=c1995c">
   </div>
   <div align="center">
-    <img src="https://file.garden/aGfS9E9X_j-yMp2I/graphics/june%20ray" width="350px">
+    <img src="https://file.garden/aGfS9E9X_j-yMp2I/graphics/91bb05e3f9aa36061a40409250f33868e0e29441.gifv" width="50px">
   </div>
   <div align="center">
-    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Patrick+Hand&size=28&duration=3000&color=6D4B83&background=FFFFFF00&center=true&multiline=true&repeat=false&width=500&height=150&lines=it%2Fits+ONLY.+no+he%2C+no+she%2C+no+they.;close+people+may+use+she%2Fhe.+i'm+17.;usually+at+docks%2C+bandom+or+homestuck+areas.;cuddles+always+welcome!+bad+english." alt="Typing SVG" /></a>
+    hello i am ray. i use it/its pronouns ONLY<br>
+    i'm tired of people using they/them on me 😭😭<br>
+    stop using other pronouns if u dont know me ty<br>
+    <br>
+    i am 17 and i'm happily taken x2 by my gfs!<br>
+    latino brazilian butch lesbian. bad english<br>
+    <br>
+    probably using facty pony on bandom!<br>
+    i love facty, they're very dear to me :)
   </div>
 </div>
